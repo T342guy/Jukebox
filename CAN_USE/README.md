@@ -10,4 +10,13 @@ Assets I have used before without issues! Music may be one of the most inportant
 
 # UNUSED
 UNUSED assets. These **may** be copyrighted.\
-If found from another source, the source and who made it wil also be shown below. 
+if a list was made by a  curator, the curator will be shown aswell where the origonal list was. 
+
+
+- [Targets! - Super Smash Bros. Melee Music Extended](https://www.youtube.com/watch?v=8RrxxbNpxTQ&t=143s)
+- [What U Need is Remix - Sonic Rush](https://www.youtube.com/watch?v=KrkFsvWOua4&t=96s)
+- [Twinkle Circuit - Sonic Adventure](https://www.youtube.com/watch?v=7bTQmX3JpTI&t=37s)
+- [Egg Albatross - Sonic Heroes](https://www.youtube.com/watch?v=C5TC557Nu2o&t=26s)
+- [Keep On Bein' Fabulous ~ Fabulous Junction ~ Open Fortress](https://www.youtube.com/watch?v=WEmYPy4nPUI&t=73s)
+- [SATFS OST: Free in the Marina ~ Sapphire Sights Act 2](https://www.youtube.com/watch?v=xnGjdmz1wNU&t=38s)
+- [SATFS OST: Electric Equinox ~ Main Menu](https://www.youtube.com/watch?v=QZ8nFvrT7ZQ&t=48s)
